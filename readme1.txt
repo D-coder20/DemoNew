@@ -1,0 +1,1 @@
+AMi korchi git kivabe kaj kore
